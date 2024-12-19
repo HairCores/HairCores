@@ -1,5 +1,5 @@
-#HairCores
-在HairCores，你會得到滿意的脫髮治療方案
+# HairCores
+在[HairCores](https://haircores.com/)，你會得到滿意的脫髮治療方案
 我們的使命是讓你的頭髮健康且接近完美，為此我們採購了市面上最被認可的產品，方便您購買
 
 
